@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently learning java script<br>I did a project with php <br>i know how to use html and css <br>i have an idea of java and python and also worked with them in the university<br>my level in c is very good <br>i master data bases
+I'm the most dangerous, strong, powerful, whitest programmer on earth.
 
 
 ## 🌐 Socials:
